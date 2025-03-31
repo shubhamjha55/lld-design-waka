@@ -16,6 +16,10 @@
   ![image](https://github.com/user-attachments/assets/a6a9ecde-4093-423f-b895-86cb6fd82e45)
 
 3. Problems page
-   ![image](https://github.com/user-attachments/assets/0c7148ed-4b6b-40dc-b2ad-23fc815fe182)
+   ![image](https://github.com/user-attachments/assets/048f933c-ffdc-44db-9a52-8365f5336415)
+  ![image](https://github.com/user-attachments/assets/b6db45b3-8f17-4ca0-bb39-d343bb021855)
+  ![image](https://github.com/user-attachments/assets/a56ab204-7e72-43d4-83a9-b06b2a72ccce)
+
+
 
 
